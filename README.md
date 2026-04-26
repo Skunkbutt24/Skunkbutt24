@@ -19,6 +19,7 @@ I'm a Computer Science student at LaGuardia Community College, learning programm
 
 - Email: liman20016@gmail.com
 - GitHub: [Skunkbutt24](https://github.com/Skunkbutt24)
+- LinkedIn: [Mohammad Liman Alam](https://www.linkedin.com/in/mohammad-liman-alam/)
 
 ## ⚡ A little more about me
 
